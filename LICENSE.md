@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with vip Shotcut for PC | Shotcut for Windows Preset | audio-sync + multi-cam-editing, the #1 preset. Includes audio-sync and
 
 
 
